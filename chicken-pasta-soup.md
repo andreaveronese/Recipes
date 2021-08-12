@@ -28,8 +28,6 @@
 6. Bring the pot to a boil and simmer on a low flame for 20 minutes.
 7. Add the pasta and continue to simmer for the time indicated on the packaging.
 
-%%%%%%%%%%%%%%%%% ![served](pix/fried-anglerfish-fillet-01.webp)
-
 ## Contribution
 
 Meg & Andrea
