@@ -25,9 +25,6 @@
 3. Combine all other ingredients in a bowl to make a the saue
 4. Combine the raw vegetables, soba noodles and sauce in a large bowl and mix
 
-%%%%%%%%% add prep time and cook time
-%%%%%%%%%%%%%%%%% ![served](pix/fried-anglerfish-fillet-01.webp)
-
 ## Contribution
 
 Meg & Andrea
